@@ -1,1 +1,0 @@
-https://github.com/ReYoshira/ono-tebe-nado-fd
